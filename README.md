@@ -1,2 +1,2 @@
-# JoJo-s-Bizarre-Adventure
-I love JoJo
+# JoJo's Bizarre Adventure
+I love JoJo.
